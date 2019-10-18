@@ -1,1 +1,1 @@
-I can't tell if it's killing me or making me stronger.
+"If you want to keep a secret, you must also hide it from yourself"
